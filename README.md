@@ -17,4 +17,5 @@ North Macedonia is often called a land of lakes and mountains. Three large lakes
 North Macedonia is a member of the United Nations and World Trade Organization (WTO). It joined NATO on 30 March 2020.[13] Since December 2005, it is a candidate for joining the European Union.[14]
 
 The language spoken by the majority of the population is Macedonian. Albanian is also spoken by the Albanian minority (25%) living in the country. North Macedonia has two official languages, Macedonian and Albanian (since 2019).
-
+Alexander the Great's Empire
+The Ancient Greek kingdom of Macedonia was just hundreds of small, independent, city-states. One example of a city state is Illyria. They sometimes merged together, but not often. One city-state that grew over time was the kingdom of Macedon. The Greek kingdom of Macedon is best known for Alexander the Great. He invaded and controlled the Middle East (excluding Arabia),Turkey, Greece, Egypt, Afghanistan, Pakistan, and the Gujarat state of India.[17] However, when Alexander died in 323 BCE, at the age of 33, he lost his vast empire. The empire was divided into 5 countries, Lysimachia (Macedon), Cassander (Northern Greece), the Antigonid Empire (Turkey, Syria, Lebanon, Israel, Southern Greece), the Ptolemaic Empire (Egypt), and the Seleucid Empire (Iraq, Iran, Afghanistan).[18]
